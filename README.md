@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SKULL-OP
+- 👀 I’m interested in FiveM
+- 🌱 I’m currently learning FiveM
+- 📫 How to reach me Discord https://discord.gg/B2sGJRq9HQ---Instagram:-kadiyan_7
